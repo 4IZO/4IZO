@@ -1,5 +1,5 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=4IZO&color=A5F100&style=plastic&label=⠀୭.˚ₓ⠀full⠀bloom⠀)
+![](https://komarev.com/ghpvc/?username=4IZO&color=E97596&style=plastic&label=⠀ₓBLACKFLASH⠀)
 
-<img src= "https://github.com/user-attachments/assets/88a48afb-6f2e-42a8-88f1-881fa5a7b545" width="50%">
+<img src= "https://github.com/user-attachments/assets/315094a2-c7ce-452a-8350-0452005f0e10" width="80%">
