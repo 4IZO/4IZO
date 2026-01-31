@@ -6,6 +6,6 @@
 
 ![](https://komarev.com/ghpvc/?username=4IZO&color=F894AF&style=plastic&label=⠀ₓBLACKFLASH⠀)
 
-<img src= "https://github.com/user-attachments/assets/315094a2-c7ce-452a-8350-0452005f0e10" width="45%">
+<img src= "https://github.com/user-attachments/assets/1acf9adc-a8c0-4e20-94f3-034befab937a" width="55%">
 
 ---
