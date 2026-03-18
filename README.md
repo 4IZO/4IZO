@@ -2,8 +2,8 @@
 
 ---
 
-![](https://komarev.com/ghpvc/?username=4IZO&color=DC143C&style=plastic&label=⠀ₓBLACKFLASH⠀)
+![](https://komarev.com/ghpvc/?username=4IZO&color=000000&style=plastic&label=⠀ₓBLACKFLASH⠀)
 
-<img src= "https://github.com/user-attachments/assets/1acf9adc-a8c0-4e20-94f3-034befab937a" width="55%">
+<img src= "https://github.com/user-attachments/assets/ab74a4c3-bc8b-4402-8009-3427c7caea9b" width="55%">
 
 ---
