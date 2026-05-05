@@ -2,8 +2,10 @@
 
 ---
 
-![](https://komarev.com/ghpvc/?username=4IZO&color=D60D31&style=plastic&label=⠀ₓSLICES⠀)
+![](https://komarev.com/ghpvc/?username=4IZO&color=000000&style=plastic&label=⠀ₓCLEANERS⠀)
 
-<img src= "https://github.com/user-attachments/assets/cc32140b-a16a-4273-8b00-8c677883365c" width="35%">
+<img src= "https://github.com/user-attachments/assets/a1c86f31-2eaa-4b42-975e-a9b640204add" width="35%">
+
+smelly stinky cute art by [mii](https://github.com/cageddoll) TEEHEE
 
 ---
